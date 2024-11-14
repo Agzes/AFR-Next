@@ -4,5 +4,5 @@
 <h3 align="center">🛠️<br>[55% / 100%]</h3>
 <br><br>
 <br><br>
-<h6 align="center">🛠️ see you soon 🛠️</h6>
+<h6 align="center">🛠️ see you soon or not  ¯\_(ツ)_/¯  🛠️</h6>
 
